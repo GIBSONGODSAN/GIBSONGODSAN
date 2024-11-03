@@ -16,7 +16,7 @@
 
 - 💬 Ask me about **LINUX, CLOUD**
 
-- 📫 How to reach me **djagatheesan20@gmail.com**
+- 📫 How to reach me **gibsonj.06103@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
